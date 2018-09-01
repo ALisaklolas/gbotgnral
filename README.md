@@ -1,1 +1,2 @@
-# gbotgnral
+# KNDbotlikesilverbotsytra
+KINGS NEVER DIE
