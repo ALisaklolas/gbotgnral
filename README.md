@@ -1,2 +1,1 @@
-# KNDbotlikesilverbotsytra
-KINGS NEVER DIE
+# noob3e
